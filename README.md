@@ -1,6 +1,6 @@
 🍁DRACCO-BOT-MD🍁
 
-🪩 To Change the owner number click here CHANGE ONWER🪩
+🪩 To Change the owner number click here .CHANGE ONWER🪩
 ＳＥＳＳＩＯＮ ＩＤ (ＰＡＩＲ ＣＯＤＥ)
 Author
 
